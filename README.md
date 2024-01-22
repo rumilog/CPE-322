@@ -17,4 +17,4 @@
 ***
 my website is [here](https://bit.ly/rumi-log)
 ***
-if 'x=2' then 'x+4=6'
+in order to print in python you must do `print("text here")`
