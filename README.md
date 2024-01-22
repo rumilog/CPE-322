@@ -16,3 +16,5 @@
 - ![codelaptop](https://github.com/rumilog/CPE-322/assets/102829545/da64f06d-2205-45e3-8632-bfb638a894f3)
 ***
 my website is [here](https://bit.ly/rumi-log)
+***
+if 'x=2' then 'x+4=6'
