@@ -1,6 +1,6 @@
 # CPE-322
 **Rumi's Repo**
->this is a repository for RUmi's CPE-322 class
+>this is a repository for Rumi's CPE-322 class
 # _this is an example of an ordered list_
 1. First item
 8. Second item
@@ -17,4 +17,4 @@
 ***
 my website is [here](https://bit.ly/rumi-log)
 ***
-in order to print in python you must do `print("text here")`
+in order to print in Python you must do `print("text here")`
