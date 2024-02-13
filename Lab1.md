@@ -14,3 +14,9 @@ _I pledge that I have abided by the Stevens Honor System_
 **Full Adder Waves:**<br>
 ![image](https://github.com/rumilog/CPE-322/assets/102829545/5199a641-2282-49d3-981b-5e831264a668) <br><br>
 ---
+<br>**Flip Flop Commands**<br>
+![image](https://github.com/rumilog/CPE-322/assets/102829545/76a4d928-f4d1-4968-9b0b-e0ef2288b03d)<br><br>
+**Flip Flop Waves**<br>
+![image](https://github.com/rumilog/CPE-322/assets/102829545/eba24695-9f78-4edc-9c79-68b4f7f0328b)<br><br>
+---
+
