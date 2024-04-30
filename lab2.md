@@ -5,3 +5,10 @@
 _I pledge that I have abided by the Stevens Honor System_
 ---
 ![image](https://cdn.discordapp.com/attachments/1215362518978011176/1234950106634256477/image.png?ex=66329869&is=663146e9&hm=59b875930d1ce08bbf6c8499b692827d4b899e1d22ab282fbbb95608ab284f81&)<br><br>
+![image](https://cdn.discordapp.com/attachments/1215362518978011176/1234950194148151337/image.png?ex=6632987e&is=663146fe&hm=7959ad06dc95a9457c06ce6739f88a3133cc610661e7457f8757073fe5007ee6&)<br><br>
+![image](https://cdn.discordapp.com/attachments/1215362518978011176/1234950240323506267/image.png?ex=66329889&is=66314709&hm=d2051edc60ecf4febe45a857aad67f09a14a0faefcb6b6ae6060756ec73c6e34&)<br><br>
+![image](https://cdn.discordapp.com/attachments/1215362518978011176/1234954057068838942/image.png?ex=66329c17&is=66314a97&hm=669da25b87f209ca8396fb08b6084dade20d7a852338c7471ed0d63539795ffa&)<br><br>
+![image](https://cdn.discordapp.com/attachments/1215362518978011176/1234954241232081028/image.png?ex=66329c43&is=66314ac3&hm=57494338e3a815a7178959f4bccec20b3a06accc52192b4ca073f394ba7193ed&)<br><br>
+![image](https://cdn.discordapp.com/attachments/1215362518978011176/1234955312046276628/image.png?ex=66329d42&is=66314bc2&hm=f65dbb4c8840fca92b8edf3f2065f3f50699c11205fa4a42dc02d78119efdf68&)<br><br>
+![image]()<br><br>
+![image]()<br><br>
