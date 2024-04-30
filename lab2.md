@@ -9,7 +9,7 @@ _I pledge that I have abided by the Stevens Honor System_
 ![image](https://cdn.discordapp.com/attachments/1215362518978011176/1234950240323506267/image.png?ex=66329889&is=66314709&hm=d2051edc60ecf4febe45a857aad67f09a14a0faefcb6b6ae6060756ec73c6e34&)<br><br>
 ![image](https://cdn.discordapp.com/attachments/1215362518978011176/1234954057068838942/image.png?ex=66329c17&is=66314a97&hm=669da25b87f209ca8396fb08b6084dade20d7a852338c7471ed0d63539795ffa&)<br><br>
 
-![image](![pics](https://github.com/rumilog/CPE-322/assets/102829545/00a95dd0-e84f-4893-bf89-17a64caa91a9))<br><br>
+![image](https://github.com/rumilog/CPE-322/assets/102829545/00a95dd0-e84f-4893-bf89-17a64caa91a9)<br><br>
 ![image](https://cdn.discordapp.com/attachments/1215362518978011176/1234954241232081028/image.png?ex=66329c43&is=66314ac3&hm=57494338e3a815a7178959f4bccec20b3a06accc52192b4ca073f394ba7193ed&)<br><br>
 ![image]()<br><br>
 ![image]()<br><br>
