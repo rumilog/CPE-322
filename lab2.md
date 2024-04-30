@@ -11,5 +11,7 @@ _I pledge that I have abided by the Stevens Honor System_
 
 ![image](https://github.com/rumilog/CPE-322/assets/102829545/00a95dd0-e84f-4893-bf89-17a64caa91a9)<br><br>
 ![image](https://cdn.discordapp.com/attachments/1215362518978011176/1234954241232081028/image.png?ex=66329c43&is=66314ac3&hm=57494338e3a815a7178959f4bccec20b3a06accc52192b4ca073f394ba7193ed&)<br><br>
-![image]()<br><br>
-![image]()<br><br>
+![image](https://cdn.discordapp.com/attachments/1215362518978011176/1234956551689605160/image.png?ex=66329e6a&is=66314cea&hm=4e68ed263028438bb0dbe5936bdf6089c330671894e4acd1f20b029d74c1e20e&)<br><br>
+![image](https://cdn.discordapp.com/attachments/1215362518978011176/1234956841004568616/Screenshot_2024-04-30_155711.png?ex=66329eaf&is=66314d2f&hm=415b679047fa82def4df2ac8008dd053507089e7f5768589b08a507c8f46fab9&)<br><br>
+![image](https://cdn.discordapp.com/attachments/1215362518978011176/1234957368123719760/image.png?ex=66329f2c&is=66314dac&hm=fca1653dfd9a7f1c84c003d88239cb6765abdfe4b33383202bb347ef5efcb541&)<br><br>
+![image](https://cdn.discordapp.com/attachments/1215362518978011176/1234957767069011998/image.png?ex=66329f8c&is=66314e0c&hm=2bfa239abc7000765b5e28b9e4b9db039d62615286589a88958f933848fd76c7&)<br><br>
